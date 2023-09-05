@@ -11,7 +11,9 @@ I thrive in collaborative environments and enjoy making data-driven decisions th
 - Advanced English language skills.
 
 You can find me at:
+
 [https://github.com/cvs2010](https://github.com/cvs2010/)
+
 [https://www.linkedin.com/in/cvs1987/](https://www.linkedin.com/in/cvs1987/)
 
 <!--
